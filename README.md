@@ -1,3 +1,12 @@
+## <p align="center"> CRK OC -  Divine Luminous Cookie </p>
+
+<p align="center"><img src="https://i.pinimg.com/736x/ab/96/33/ab96336be18e7a5a48ff84f877f184da.jpg" width="500" /></p>
+
+<p align="center"> ${\color{pink} Divine }$ ${\color{purple} Luminous }$ ${\color{blue} Cookie }$ </p>
+<p align="center"> ${\color{pink} Pronouns: }$ ${\color{purple} They/ }$ ${\color{blue} Them }$ </p>
+
+****
+
 ## <p align="center"> 🌻 Purecacao 🪻 </p>
 
 <p align="center"><img src="https://i.pinimg.com/736x/ba/9a/52/ba9a52359e41385ecfe2d9679e146e19.jpg" width="350" /></p>
