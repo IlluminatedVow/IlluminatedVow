@@ -1,18 +1,3 @@
-## <p align="center"> CRK OC -  Divine Luminous Cookie </p>
-
-https://github.com/user-attachments/assets/85d32043-fa36-49a5-a38d-c2096beec882
-
-<p align="center"><img src="https://i.pinimg.com/736x/ca/6a/2d/ca6a2d4b96f029aad2d34fc768b745c9.jpg" width="600" /></p>
-
-****
-
-<p align="center"><img src="https://i.pinimg.com/736x/ab/96/33/ab96336be18e7a5a48ff84f877f184da.jpg" width="500" /></p>
-
-<p align="center"> ${\color{pink} Divine }$ ${\color{purple} Luminous }$ ${\color{blue} Cookie }$ </p>
-<p align="center"> ${\color{pink} Pronouns: }$ ${\color{purple} They/ }$ ${\color{blue} Them }$ </p>
-
-****
-
 ## <p align="center"> 🌻 Purecacao 🪻 </p>
 
 <p align="center"><img src="https://i.pinimg.com/736x/ba/9a/52/ba9a52359e41385ecfe2d9679e146e19.jpg" width="350" /></p>
@@ -29,6 +14,19 @@ https://github.com/user-attachments/assets/85d32043-fa36-49a5-a38d-c2096beec882
 <p align="center"><img src="https://i.pinimg.com/736x/90/c1/d6/90c1d671844dbfe87c6d65d7eda7afbf.jpg" width="450" /></p>
 
 <p align="center"> ${\color{purple}"You're \space as \space beautiful \space as \space the \space day \space I \space lost \space you."}$ </p>
+
+## <p align="center"> CRK OC -  Divine Luminous Cookie </p>
+
+https://github.com/user-attachments/assets/85d32043-fa36-49a5-a38d-c2096beec882
+
+<p align="center"><img src="https://i.pinimg.com/736x/ca/6a/2d/ca6a2d4b96f029aad2d34fc768b745c9.jpg" width="600" /></p>
+
+****
+
+<p align="center"><img src="https://i.pinimg.com/736x/ab/96/33/ab96336be18e7a5a48ff84f877f184da.jpg" width="500" /></p>
+
+<p align="center"> ${\color{pink} Divine }$ ${\color{purple} Luminous }$ ${\color{blue} Cookie }$ </p>
+<p align="center"> ${\color{pink} Pronouns: }$ ${\color{purple} They/ }$ ${\color{blue} Them }$ </p>
 
 ****
 
