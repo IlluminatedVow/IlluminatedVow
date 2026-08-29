@@ -25,8 +25,6 @@ https://github.com/user-attachments/assets/85d32043-fa36-49a5-a38d-c2096beec882
 
 ****
 
-<p align="center"><img src="https://i.pinimg.com/736x/ab/96/33/ab96336be18e7a5a48ff84f877f184da.jpg" width="500" /></p>
-
 <p align="center"> ${\color{pink} Divine }$ ${\color{purple} Luminous }$ ${\color{blue} Cookie }$ </p>
 <p align="center"> ${\color{pink} Pronouns: }$ ${\color{purple} They/ }$ ${\color{blue} Them }$ </p>
 
